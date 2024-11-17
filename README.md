@@ -1,0 +1,1 @@
+# comune-gjd-sondaggi
